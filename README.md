@@ -3,6 +3,8 @@
 Maria Emilia Andersen, pero me dicen **Emi** o **Ems**
 ### Foto ###
 [foto personal](fotoemi.png)
+__aclaracion:ahora estoy colorada__
+
 #### Legajo ####
 Legajo:2088745
 
