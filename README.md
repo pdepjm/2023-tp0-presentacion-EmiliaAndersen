@@ -12,7 +12,7 @@ Legajo:2088745
 - Estoy en segundo año de la carrera.
 - Tengo 19 años.
 - Si me mandas un wpp probablemente este durmiendo 😴, fan de la siesta.
--💻 Mi juego favorito es el **League of Legends**, aunque intento usarlo solamente en vacaciones...
+- 💻 Mi juego favorito es el **League of Legends**, aunque intento usarlo solamente en vacaciones...
 - Lo poco de tiempo libre que tengo es para: **gimnasio, guitarra o amigos**.
 - Mi helado fav es el de **Frambuesa**🫣
 - Serie fav obviamente GOT, la mejor.🤗
