@@ -2,7 +2,7 @@
 ## Nombre ##
 Maria Emilia Andersen, pero me dicen **Emi** o **Ems**
 ### Foto ###
-[foto personal](fotoemi.png)
+[foto personal](fotoemi.jpg)
 #### Legajo ####
 Legajo:2088745
 
